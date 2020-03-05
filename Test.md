@@ -15,5 +15,14 @@ hello
 Holy moly chromoly
 
 awesomeness!
-sdkhfkjsdhf sjkdfhajksdh 
+sdkhfkjsdhf sjkdfhajksdh
 >>>>>>> ca28f272940ab611a207dcee1ae6b6e1b7cd9da8
+
+is this workin?
+
+this is still weird
+But Getting less weirder by the moment!!!
+// you see stuff
+
+
+ksdjhfkjashfjkhsadfkjl
